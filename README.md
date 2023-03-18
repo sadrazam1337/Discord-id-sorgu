@@ -1,0 +1,2 @@
+# Discord-id-sorgu
+SADRAZAM1337 İD SORGULAMA PANELİ
